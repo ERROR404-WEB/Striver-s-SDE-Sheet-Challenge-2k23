@@ -4,4 +4,4 @@
 ⏱️: Start Date : 04-06-2023 <br>
 
 
-[LinkedIn Post] (https://www.linkedin.com/posts/arjun-kumar-34b1bb229_striverssdesheetchallenge-codingexcellence-activity-7070992890264522752-vkxJ?utm_source=share&utm_medium=member_desktophttps://www.linkedin.com/posts/arjun-kumar-34b1bb229_striverssdesheetchallenge-codingexcellence-activity-7070992890264522752-vkxJ?utm_source=share&utm_medium=member_desktop)
+[LinkedIn Post] (https://www.linkedin.com/in/arjun-kumar-34b1bb229/)
